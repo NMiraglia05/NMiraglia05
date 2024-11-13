@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NMiraglia05
+- 👀 I’m interested in transitioning to a career in data analytics
+- 📫 How to reach me- email me- nmiraglia05@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I previously kept bees, and if I had the land to do it I still would.
